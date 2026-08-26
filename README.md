@@ -18,4 +18,4 @@ A designer learning to code, exploring the intersection of design and developmen
 
 Open to discussions about anything – feel free to reach out.
 
-🐦 [@seedofmany](https://x.com/seedofmany)
+🐦 [@itsmraxel](https://x.com/itsmraxel)
